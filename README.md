@@ -1,4 +1,4 @@
-# Social-Media-s-Influence-On-Black-Lives-Matter
+# Social Media's Influence On Black Lives Matter
 
 # Infographic
 
